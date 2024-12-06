@@ -244,3 +244,5 @@ https://drive.google.com/drive/folders/1TVtni9Tg3pcT1xVO0aaDITzUaDwtRRmy?usp=dri
 ## Videos de los ejercicios de clase
 https://drive.google.com/drive/folders/1lpNoHPpwZ2OynrGCjJKJJWD4lfdcB9du?usp=sharing
 
+## Video de Tiktok
+https://vm.tiktok.com/ZMkRSQFty/
